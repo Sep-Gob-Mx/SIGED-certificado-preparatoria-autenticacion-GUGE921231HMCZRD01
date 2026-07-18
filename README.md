@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GUGE921231HMCZRD01
+GUGE921231HMCZRD01
